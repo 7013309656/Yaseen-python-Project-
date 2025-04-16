@@ -1,1 +1,1 @@
-Greenhouse emmision
+Greenhouse gas emmision
